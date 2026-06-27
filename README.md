@@ -1,1 +1,1 @@
-# 2026_thu_Details_of_Management_Information_BandE
+# 2026年度　経営情報各論B&E 講義資料
